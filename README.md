@@ -1,1 +1,1 @@
-# redhat-safety
+# redhat-safety training and consulting pvt ltd is an institute where we are providing national and international level safety courses. National level has bss diploma certified by central government. International certificate has International general certification level-3 and International diploma level-6 certified by nebosh,UK.
